@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning
 - 👯 I’m looking for job opportunities
 - 🥅 2021 Goals: Improve my skills
-- ⚡ Fun fact: I love solving different puzzles
+- ⚡ Fun fact: I am looking forward to becoming a cryptocurrency trader
 
 <br />
 
